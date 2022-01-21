@@ -7,7 +7,7 @@
 
 ## Salam!
 
-#### Hər gün bir öncəki gündən daha çox yaxınlaşdığım bir şey var oda kompüterimdir. Bəli, Ciddi fikirləşirik. :D
+#### Hər gün bir öncəki gündən daha çox yaxınlaşdığım bir şey var oda kompüterimdir. Bəli, Ciddi fikirləşirik.
 
 - 🌱 Hazırda hər şeyi öyrənirəm.
 - 👯 Faydalı hesab etdiyim "Challenge" - ləri Azərbaycan dilinə tərcümə edirəm.
