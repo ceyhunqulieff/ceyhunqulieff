@@ -7,11 +7,11 @@
 
 ## Salam!
 
-#### Hər gün bir öncəki gündən daha çox yaxınlaşdığım bir şey var oda kompüterimdir. Bəli, Ciddi fikirləşirik. xd
+#### Hər gün bir öncəki gündən daha çox yaxınlaşdığım bir şey var oda kompüterimdir. Bəli, Ciddi fikirləşirik. :D
 
 - 🌱 Hazırda hər şeyi öyrənirəm.
 - 👯 Faydalı hesab etdiyim "Challenge" - ləri Azərbaycan dilinə tərcümə edirəm.
-- 🥅 SNA - Social Network Agency komandası ilə də həmçinin birgə çalışıram.
+- 🥅 SNA - Social Network Agency komandası ilə həmçinin birgə çalışıram.
 - ⚡ Hobi olaraq şahmat oynamağı, film izləməyi sevirəm.
 
 ### Mənimlə əlaqə saxlayın:
