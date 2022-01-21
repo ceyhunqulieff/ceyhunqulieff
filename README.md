@@ -5,7 +5,7 @@
 
 <br>
 
-## Salam!
+## Salam 👋!
 
 #### Hər gün bir öncəki gündən daha çox yaxınlaşdığım bir şey var oda kompüterimdir. Bəli, Ciddi fikirləşirik.
 
