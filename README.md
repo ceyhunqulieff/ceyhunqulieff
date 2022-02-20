@@ -7,7 +7,7 @@
 
 ## Salam 👋!
 
-### Mənimlə əlaqə saxlayın:
+### Mənimlə əlaqə saxlamaq üçün:
 
 [<img align="left" alt="SNA.az" width="22px" src="https://www.iconfinder.com/icons/1891027/download/svg/4096" />][website]
 [<img align="left" alt="ceyhunqulieff | YouTube" width="22px" src="https://www.iconfinder.com/icons/5296521/download/svg/4096" />][youtube]
