@@ -7,13 +7,6 @@
 
 ## Salam 👋!
 
-#### Hər gün bir öncəki gündən daha çox yaxınlaşdığım bir şey var oda kompüterimdir. Bəli, Ciddi fikirləşirik.
-
-- 🌱 Hazırda hər şeyi öyrənirəm.
-- 👯 Faydalı hesab etdiyim "Challenge" - ləri Azərbaycan dilinə tərcümə edirəm.
-- 🥅 SNA - Social Network Agency komandası ilə birgə çalışıram.
-- ⚡ Hobi olaraq şahmat oynamağı, film izləməyi sevirəm.
-
 ### Mənimlə əlaqə saxlayın:
 
 [<img align="left" alt="SNA.az" width="22px" src="https://www.iconfinder.com/icons/1891027/download/svg/4096" />][website]
